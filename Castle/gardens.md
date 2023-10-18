@@ -1,0 +1,1 @@
+The gardens are lush and green
